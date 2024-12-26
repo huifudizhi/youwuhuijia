@@ -9,8 +9,8 @@
 
 ## **🚀 尤物回家不迷路官网 🚀**  
 
-❤️ **【最新地址】**：https://最新.dizhi02.top/《绿巨人》 <br>
-❤️ **【官网地址】**：https://官方.dizhi03.top/《美国队长》 <br>
+❤️ **【最新地址】**：https://最新.dizhi02.top/《惊奇队长》 <br>
+❤️ **【官网地址】**：https://官方.dizhi03.top/《魔法师》 <br>
 ❤️ **【备用地址】**：https://星爵.dizhi66.top <br>
 👉 **【官方永久地址发布】**：https://wangjidizhi.com 
 
